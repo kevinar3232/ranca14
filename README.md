@@ -1,0 +1,2 @@
+# ranca14
+tokopedia
